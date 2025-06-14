@@ -1,2 +1,2 @@
-# suffering from lack of thirst?
+# suffering from lack of drink?
 orange juice AND lemonade cloud?!?
